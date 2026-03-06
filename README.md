@@ -14,6 +14,3 @@ I consider myself a persevering, self-taught person with a great capacity for le
 I am looking for opportunities as a junior developer or trainee, where I can continue learning, contribute my skills, and grow professionally within the technology sector.
 
 My goal is to become a solid professional in the world of software development and contribute to projects that generate real value.
-
-
-Translated with DeepL.com (free version)
